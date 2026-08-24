@@ -1,2 +1,2 @@
-# Dise-o-De-Software-
+# Diseño-De-Software-
 Zara Calvache 927517
